@@ -1,0 +1,2 @@
+- [Discord](https://discord.gg/VJHNZWW5fm)
+- [YouTube](https://www.youtube.com/channel/UCRZQ45u1Y1KistKWQhULGXQ)
